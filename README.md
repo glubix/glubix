@@ -1,4 +1,4 @@
-Merlin Bourgeois
+<FONT size="10pt"> Merlin Bourgeois </FONT>
 
 Student at 19 Brussels (42 network)
 
